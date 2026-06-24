@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ShadowDragon19
-- 👀 I’m interested in cyber security
+- 👀 I’m a Program Manager 
 - 🌱 I’m currently learning cyber analytics
 - 💞️ I’m looking to collaborate on all things cyber
 - 📫 
